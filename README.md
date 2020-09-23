@@ -5,4 +5,4 @@ Probably creating a GitHub repo will give me motivation to keep on doing competi
 <br/> Let's see, how it goes :)
 
 _Update(after two weeks): 
-No, that motivation didn't last long. Hence proved, Procastination > motivation :(_
+Procastination-1 motivation-0 :(_
